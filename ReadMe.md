@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 Estudante de Análise e desenvolvimento de sistemas<br>      Systems Analysis and Development student<br><br>⚙ Á procura de um estágio<br>    Looking for an internship<br><br>🇧🇷/🇺🇸<br>
+💻 Estudante de Análise e desenvolvimento de sistemas<br>      Systems Analysis and Development student<br><br>⚙ Á procura de novas oportunidades<br>    Seeking new opportunities<br><br>🇧🇷/🇺🇸<br>
 
 
 ## 🌐 Socials:
